@@ -3,5 +3,5 @@
 </p>
   
 <p align="center">
-  <a href="https://guns.lol/laufeyson">guns.lol⠀ ⠀ᜊ(꒪ˊ꒳ˋ꒪)ᜊ</a>
+  <a href="https://jackson.atabook.org">atabook⠀ ⠀ᜊ(꒪ˊ꒳ˋ꒪)ᜊ</a>
 </p>
